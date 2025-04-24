@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Itscay
+- 👋 Hi, I’m cay
 - 👀 I’m interested in Music and Basketall
 - 🌱 I’m currently learning Electcal
 - 💞️ I’m looking to collaborate on IDK
